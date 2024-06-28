@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RunalPal
 - 👀 I’m interested in Techno-Humanism
 - 🌱 I’m currently learning concepts of AI
-- 💞️ I’m looking to collaborate on tech commitments with insurace and risk management .
+- 💞️ I’m looking to collaborate on tech commitments with insurance and risk management .
 - 📫 How to reach me :- connect me on kinghentage25@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: tech grad with high interest in business .
